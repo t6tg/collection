@@ -1,4 +1,3 @@
-## Collection
 * Yuki rumina
 * Airi Suzumura
 * Kaede karen
