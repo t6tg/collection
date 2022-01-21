@@ -45,3 +45,4 @@
 * WASHIO MEI 鷲尾 めい
 * KOYOI KONAN 小宵こなん
 * リリー・ハート
+* kimura tsuna
