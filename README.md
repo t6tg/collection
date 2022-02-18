@@ -46,3 +46,4 @@
 * KOYOI KONAN 小宵こなん
 * リリー・ハート
 * kimura tsuna
+* ONO RIKKA ( 小野六花 )
