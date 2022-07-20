@@ -49,3 +49,4 @@
 * ONO RIKKA ( 小野六花 )
 * Ema Futaba
 * 宮下玲奈 MIYASHITA RENA
+* 七沢みあ NANASAWA MIA
