@@ -51,3 +51,4 @@
 * 宮下玲奈 MIYASHITA RENA
 * 七沢みあ NANASAWA MIA
 * Erina Oka
+* Sui Mizumori 
