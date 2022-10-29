@@ -52,3 +52,4 @@
 * 七沢みあ NANASAWA MIA
 * Erina Oka
 * Sui Mizumori 
+* Mio Ishikawa
