@@ -56,3 +56,4 @@
 * Saika Kawakita (河北彩花)
 * Yotsuha Kominato
 * Remu Suzumori
+* 구노 히나노
