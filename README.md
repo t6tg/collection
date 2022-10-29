@@ -53,3 +53,4 @@
 * Erina Oka
 * Sui Mizumori 
 * Mio Ishikawa
+* Sashihara Rino
