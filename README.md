@@ -55,3 +55,4 @@
 * Mio Ishikawa
 * Sashihara Rino
 * Saika Kawakita (河北彩花)
+* Yotsuha Kominato
