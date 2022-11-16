@@ -57,3 +57,8 @@
 * Yotsuha Kominato
 * Remu Suzumori
 * 구노 히나노
+* Lulu chu
+* HongKongDoll
+* June Liu
+* Luna Okko
+* Rae Lil Black
