@@ -62,3 +62,5 @@
 * June Liu
 * Luna Okko
 * Rae Lil Black
+* Rena Miyashita
+* Hikari Aozora 
