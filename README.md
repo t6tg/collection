@@ -64,3 +64,8 @@
 * Rae Lil Black
 * Rena Miyashita
 * Hikari Aozora 
+* ITSUHA
+* ARATA ARINA
+* ARAI RIMA
+* KISAKI NANA
+* IORI HINANO
